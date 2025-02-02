@@ -2,6 +2,8 @@
 
 In today's digital landscape, businesses require robust hosting solutions to ensure optimal performance, security, and control over their online operations. For enterprises operating in India, especially in major cities like Mumbai and Delhi, selecting the right dedicated server is crucial.
 
+## [Order Dedicated Server Now](https://www.youstable.com/dedicated-servers)
+
 ## Dedicated Servers in India
 
 A **dedicated server** provides an exclusive hosting environment, offering unparalleled resources and control. Opting for a dedicated server in India ensures low latency and reliable performance, catering to the needs of businesses targeting the Indian market.
